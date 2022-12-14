@@ -1,4 +1,4 @@
-- 👋 I’m @gh005t0w
+- 👋 @gh005t0w
 - 👀 Designer - Hacker - Videoeditor -Beatmaker
 - 🇲🇦 PROUD TO BE MOROCCAN 🌴
 - 💞️ still learning about satsys
